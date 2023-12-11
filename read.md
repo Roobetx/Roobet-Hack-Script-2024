@@ -8,9 +8,6 @@
 
 # Download Link : https://drive.google.com/file/d/1K0cJjvKkrProusjbQEG57TJeSZTMHNiE/view
 
-
-![CASINO](https://i.ibb.co/7rwK3Tz/casino.jpg)
-
 ## How to use? 
 
 1. Download the file and install it as in the video.
