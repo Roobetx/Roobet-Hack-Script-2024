@@ -1,6 +1,6 @@
-# Crash-Predictor-Roobet-Stake-Bustabit-Cloudbet-Bloxflip-1xbet-Aviator
+# ROOBET DOUBLE BALANCE SCRIPT HACK 2024
 
-# Crash predictor for casino games.
+# ROOBET HACK.
 # Working on Roobet.
 
 # Video : https://streamable.com/orvis0
