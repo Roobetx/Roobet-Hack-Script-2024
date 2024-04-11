@@ -6,7 +6,7 @@
 # Video : https://streamable.com/orvis0
 
 
-# Download Link : https://drive.google.com/file/d/1K0cJjvKkrProusjbQEG57TJeSZTMHNiE/view
+# Download Link : https://drive.google.com/file/d/1F5gt4Nf2Kp3zc0D5rAGQ_B_lnFsHs0Ic/view?usp=sharing
 
 ## How to use? 
 
@@ -23,7 +23,7 @@
 
 ## Contact:
 
-- Contact telegram : @modexm50
+- Contact telegram : @HoodieJr
 
 
 ## Preview:
